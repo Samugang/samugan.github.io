@@ -1,1 +1,1 @@
-# samugan.github.io
+google.com, pub-8750815779048771, DIRECT, f08c47fec0942fa0
